@@ -1,0 +1,1 @@
+# kystyyrma_sozder
